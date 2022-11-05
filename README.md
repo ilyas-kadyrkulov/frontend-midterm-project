@@ -12,7 +12,7 @@
 
 
 ## Tutorial
-[![Tutorial](https://wwwcdn.cincopa.com/blogres/wp-content/uploads/2019/02/video-tutorial-image.jpg)](https://www.youtube.com/watch?v=kxmGlLbJPFk)
+[![Tutorial](https://babsbaseball.com/wp-content/uploads/2020/01/tutorial.jpg)](https://www.youtube.com/watch?v=kxmGlLbJPFk)
 
 
 # Thank you for watching🙏
